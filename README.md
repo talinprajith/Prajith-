@@ -1,4 +1,4 @@
-# Prajith-
+
 ## 👋 Hi there, I'm TALIN PRAJITH
 
 **Civil Engineering Student | Architecture Enthusiast | Designer & Creator**

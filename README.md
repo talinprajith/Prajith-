@@ -20,3 +20,7 @@ When I'm not studying or working on projects, you'll find me sketching new ideas
 **"Bridging the gap between engineering precision and architectural elegance."**
 
 Feel free to explore my repositories and connect with me!
+
+![Linkedin](https://www.linkedin.com/in/talin-prajith-756776404?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+![Mail Id](talinprajith20@gmail.com)
+
